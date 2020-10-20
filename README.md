@@ -10,3 +10,5 @@ Blog Entry #3: https://docs.google.com/document/d/19biM70HxBoAE287xEK0bo-NV0hUXA
 Blog Entry #4: https://docs.google.com/document/d/1MIXMsbNM_xDm0u4Wm1l-KedrInxGWhWAxn-XlMUeVBg/edit?usp=sharing
 
 Blog Entry #5: https://docs.google.com/document/d/11chh3St6L2JManuetCRfPvPb4m5C79-O8xLSWrzTcfs/edit?usp=sharing
+
+Blog Entry #6: https://docs.google.com/document/d/1t884MNR4xFOZJUyZeucQjYHAV7c-K9MwaodJbo8pQIk/edit?usp=sharing
